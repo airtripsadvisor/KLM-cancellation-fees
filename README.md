@@ -1,0 +1,2 @@
+# KLM-cancellation-fees
+Change in plans for travel suddenly? Do you want to cancel your travel reservation? If so, proceed! KLM cancelling policy for tickets allows passengers to alter the booking or cancel the reservation easily. When you decide to cancel the ticket for your trip, it is advised to review the entire cancellation procedure of the company and determine whether you're eligible for refunds or not.
